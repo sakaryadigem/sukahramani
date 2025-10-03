@@ -13,7 +13,7 @@ Bu görevler;
 
 ## NEREDEN İNDİREBİLİRİM?
 
-Oyunu indirmek için [tıklayınız](https://drive.google.com/drive/folders/1qU0ThpctvO6g8SL4Pw00dPyNnAn5JFPt?usp=drive_link).
+Oyunu indirmek için [tıklayınız](https://drive.google.com/drive/folders/1KmCpGt5PIGCKUTXgko591oHK1E0gFIBF?usp=drive_link).
 
 ![Suyunu İsraf Etme.](/sukahramani.jpeg)
 
